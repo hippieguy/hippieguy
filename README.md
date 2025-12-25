@@ -5,7 +5,7 @@
 
 ![Image](https://github.com/user-attachments/assets/f02d4f2a-79ad-4613-9156-b51aa0456ae5)
 
-![Image](https://github.com/user-attachments/assets/67940d7f-a5aa-4e91-99c4-a9a4a57c51d1)
+
 
 "quote"
 
