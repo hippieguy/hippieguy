@@ -1,16 +1,17 @@
-## Hi there 👋
+<p align="center">
+  <h4 align="center"
+    </a>
+    
 
-<!--
-**hippieguy/hippieguy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![Image](https://github.com/user-attachments/assets/f02d4f2a-79ad-4613-9156-b51aa0456ae5)
 
-Here are some ideas to get you started:
+![Image](https://github.com/user-attachments/assets/67940d7f-a5aa-4e91-99c4-a9a4a57c51d1)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+"quote"
+
+♡ Sol/William/afton | she/he/they/it | SYS
+♡ I'm talkative, it's shutting me up that's the trick /j
+♡ interests: FNAF , Gravity falls , Scream , bsd , mha (fandom dniuf or i do) , Stranger things , + more
+♡ my dni: is I block freely to create my own space. 
+
+![Image](https://github.com/user-attachments/assets/1d768adb-a05f-47ed-951d-fa6047237c17)
